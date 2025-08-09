@@ -7,4 +7,8 @@ my first day of college begins with blessings of God as we went to gurudwara sah
 # Day-2
 ## 1st August 2025
 My second day of my college start with resiting the name of God by all the students present in the auditorium .Then the induction program started with an expert talk with Dr.Priya darshni on universal human values there we understand that how a person can be happy and prosperous throughout the life. Then I attended a talk with Dr.Arvind Dhingra sir on student devlopment .That what are the qualities of an ideal student and much more.After the experts lecture we have basic test of English and mathematics to test our basics and with this second day ends successfully.
-
+# day-3
+## 4th August 2025
+My third day of college begins by resiting the name of God. then program start and first of all we have an expert talk with Dr.Priya Darshani madam on topic Universal Human Values in Auditorium and guided us that how to live value -based life. Then a senior Gautam sir of mechanical engineering branch share his journey in Motorsports which inspires me a lot.
+Then the Team of causmic club which organize the whole induction program told us about there initives
+for students to develop our skills like creativity, leadership,etc. Then we moved for our English class where we learn that how to present ourself among others. Then we attended the peer to peer class in which seniors taught us about coding basics which is helpful in further studies. with this our day end.
