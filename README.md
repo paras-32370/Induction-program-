@@ -14,4 +14,7 @@ Then the Team of causmic club which organize the whole induction program told us
 for students to develop our skills like creativity, leadership,etc. Then we moved for our English class where we learn that how to present ourself among others. Then we attended the peer to peer class in which seniors taught us about coding basics which is helpful in further studies. with this our day end.
 # day-4
 ## 5th August 2025
-my fourth day of college starts at afternoon and we have a talk with senior Gautam sir on topic Motorsports . Then we have an introduction to the digital marketing club that what is the significance and working of this club and encourage us to participate in the recruitment of club.At last we attended an talk with Shaffy Makkar madam on topic millet super food in which we understand the importance of millets in daily life and its benifits.with this the day ends 
+my fourth day of college starts at afternoon and we have a talk with senior Gautam sir on topic Motorsports . Then we have an introduction to the digital marketing club that what is the significance and working of this club and encourage us to participate in the recruitment of club.At last we attended an talk with Shaffy Makkar madam on topic millet super food in which we understand the importance of millets in daily life and its benifits.with this the day ends.
+# day-5
+## 6th August 2025
+my fourth day of college begins with experts talk in morning session 
